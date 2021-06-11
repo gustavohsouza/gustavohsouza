@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @gustavohsouza
+- https://www.linkedin.com/in/gustavosouza1/
+- https://twitter.com/gustavosouza321
